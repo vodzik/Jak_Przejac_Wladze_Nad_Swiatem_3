@@ -1,0 +1,1 @@
+# Jak_Przejac_Wladze_Nad_Swiatem_3
